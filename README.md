@@ -22,7 +22,7 @@ I have a tattoo of Tux the Linux mascot on my right shoulder. Get to know me and
 
 ## What's going on right now?
 
-Musically, I'm on a Chicago kick. They're an incredibly interesting band with a strange, tumultuous history. A lot of people know the songs from the 1980s during the Peter Cetera-as-leader era with a lot of ballads, but the best stuff all comes before Terry Kath accidentally shot himself cleaning a gun while intoxicated.
+Musically, I'm on a [Chicago](https://www.chicagotheband.com) kick. They're an incredibly interesting band with a strange, tumultuous history. A lot of people know the songs from the 1980s during the Peter Cetera-as-leader era with a lot of ballads, but the best stuff all comes before Terry Kath accidentally shot himself cleaning a gun while intoxicated.
 
 Wow, that got real dark real fast. Sorry about that.
 
