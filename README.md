@@ -2,7 +2,7 @@
 
 ## Who the heck are you?
 
-I'm Tom. I live in Bronx, NY, USA in a converted living room within an apartment. I like video games, comics, lots of different music, vinyl records, weird TV and movies, professional wrestling, pub quiz, and sleep. Particularly sleep.
+I'm Tom. I live in The Bronx, NY, USA in a converted living room within an apartment. I like video games, comics, lots of different music, vinyl records, weird TV and movies, professional wrestling, pub quiz, and sleep. Particularly sleep.
 
 ## Why should I care?
 
