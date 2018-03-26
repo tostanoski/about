@@ -4,6 +4,8 @@
 
 I'm Tom. I live in The Bronx, NY, USA in a converted living room within an apartment. I like video games, comics, lots of different music, vinyl records, weird TV and movies, professional wrestling, pub quiz, and sleep. Particularly sleep.
 
+Want to know more? Feel free to [schedule a video call](https://tomtostanoski.com/schedule) with me. 
+
 ## Why should I care?
 
 To be honest, you probably shouldn't. But if you want to, it's because I run the support team over at [Rocket.Chat](https://rocket.chat). Or because I'm a quizmaster for [Geeks Who Drink](https://geekswhodrink.com). I currently host at [The Park View](http://www.theparkviewcafe.com) and occasionally you'll catch me subbing at other New York City venues.
