@@ -23,3 +23,5 @@ I have a tattoo of Tux the Linux mascot on my right shoulder. Get to know me and
 ## How do I get in touch with you?
 
 That's a bit up in the air right now. I still hate email, and Twitter has become, well, whatever the hell Twitter is now. I guess for now seek out @tommytoastnose on Instagram. Wait, that's a private account now. Ugh, I hate modern communication. Fine, <tom@nerdnest.net>. Happy now?
+
+I also added a discussion forum to the page. Feel free to ask me questions there.
